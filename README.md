@@ -1,1 +1,0 @@
-# Articel-Of-Yaman
